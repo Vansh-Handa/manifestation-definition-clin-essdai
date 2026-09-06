@@ -1,1 +1,1 @@
-# manifestation-definition-cliin-essdai
+# manifestation-definition-clin-essdai
